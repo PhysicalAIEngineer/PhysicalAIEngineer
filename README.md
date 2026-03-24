@@ -3,7 +3,6 @@
 
 Email Me 👉 ✉️ **chetansonigara01@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 📫 **How to reach me:** chetansonigara01@gmail.com
 - 😄 **Pronouns:** Chetan 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/chetan-sonigara-2a3b49283/) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:chetansonigara01@gmail.com) 
