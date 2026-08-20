@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Chetan Sonigara 
-**A passionate Autonomous System Engineer & Researcher  || Computer Engineer || AI Engineer || Data Scientits || Perception Engineer**
+**A passionate Autonomous System Engineer & Researcher  || Computer Vision Engineer || AI Engineer || Data Scientits || Perception Engineer**
 
 Email Me 👉 ✉️ **chetansonigara01@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
